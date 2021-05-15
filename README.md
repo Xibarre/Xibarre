@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Xibarre
+- 👀 I’m interested in learning programing
+- 🌱 I’m currently learning python and java
+- 📫 You can reach me in my email// portgatehome@gmail.com
